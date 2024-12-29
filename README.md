@@ -1,1 +1,0 @@
-# ValeriyLupanenko.github.io
